@@ -1,7 +1,8 @@
 # Octávio Turra 360º
 
 Frases que ouvi e me impactam
-Às vezes não sei onde ouvi, mas tanto faz, eu acredito, pronuncio e é isso aí.
+
+Às vezes não sei onde ouvi, mas aprendi com elas
 
 Caso seja autor de alguma dessas frases (ou acha que é) bom, sinta-se orgulhoso de saber que eu acredito nisso... é o máximo que posso fazer por ora
 
