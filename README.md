@@ -1,9 +1,11 @@
-# Octavianismo
+# Octávio Turra 360º
 
-Frases, verdades e crenças de Octavio Turra
-Eu não sei a fonte, eventualmente inventei, ouvi, mas tanto faz, eu acredito, pronuncio e é isso aí.
+Frases que ouvi e me impactam
+Às vezes não sei onde ouvi, mas tanto faz, eu acredito, pronuncio e é isso aí.
 
 Caso seja autor de alguma dessas frases (ou acha que é) bom, sinta-se orgulhoso de saber que eu acredito nisso... é o máximo que posso fazer por ora
+
+E não quero que acredite ou siga, mas espero que se provocar sobre elas te ajude em algo.
 
 ### Frases ouvidas que me impactaram
 
@@ -21,7 +23,7 @@ Caso seja autor de alguma dessas frases (ou acha que é) bom, sinta-se orgulhoso
 - Eu não vou fazer tudo que você quer, mas vou ouvir atentamente
 - 
 
-### Frases assimiliadas
+### Frases e filosofias de vida
 
 > Se o problema não é de ninguém, é meu!
 
